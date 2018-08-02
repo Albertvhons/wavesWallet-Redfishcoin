@@ -1,0 +1,1 @@
+# wavesWallet-Redfishcoin
